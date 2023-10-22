@@ -1,4 +1,4 @@
-### Hi there 👋
+### Live long and prosper 🖖
 
 <!--
 **jyhyun97/jyhyun97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
